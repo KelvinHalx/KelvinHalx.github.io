@@ -25,8 +25,10 @@ Current Lifestyle:
 
 📫 How to reach me:
 
-Twitter--[@Dev_Halx](https://twitter.com/Dev_Halx).
+👤 Kelvin Halx
+- Github: [@KelvinHalx](https://github.com/KelvinHalx)
+- Twitter: [@Dev_Halx](https://twitter.com/Dev_Halx).
+- Linkedin: [KelvinNdungu](https://linkedin.com/in/KelvinNdungu)
+- Phone [0724829888]
+- E-mail--[kelvinwainaina03@gmail.comcom](kelvinwainaina03@gmail.com).
 
-E-mail--[kelvinwainaina03@gmail.comcom](kelvinwainaina03@gmail.com).
-
-Phone [0724829888]
